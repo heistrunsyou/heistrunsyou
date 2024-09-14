@@ -5,7 +5,7 @@
 
 
 # About me
-Hey. I am heist (also known as shehatesheist, heistslegacy, blood6tains, 88BPM, and heistrunsyou on other platforms)
+Hey. I am heist
 
 I specialize in video editing, graphic design, songwriting, and coding.
 
