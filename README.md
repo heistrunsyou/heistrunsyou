@@ -1,5 +1,5 @@
 # @heist
-![Group 1 (3)](https://images.mubicdn.net/images/film/334/cache-8091-1631024157/image-w1280.jpg?size=800x)
+![Group 1 (3)](https://files.catbox.moe/t85433.png)
 
 
 # Socials
