@@ -2,8 +2,11 @@
 
 # Socials
 @kyotovein - discord
+
 @verstitle - roblox
+
 @kyotovein - instagram
+
 @hhikimori - youtube
 
 
