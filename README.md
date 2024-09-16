@@ -1,6 +1,6 @@
 # @heist
 ![death comes before life](https://i.pinimg.com/736x/bd/63/1e/bd631e7f67f681a765f2ed961f0e7786.jpg)
-
+death comes before life
 
 # Socials
 [@kyotovein](https://discordapp.com/users/957499162033811487) - discord
