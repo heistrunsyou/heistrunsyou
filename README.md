@@ -1,5 +1,5 @@
 # @heist
-![death comes before life](https://files.catbox.moe/t85433.png)
+![death comes before life](https://i.pinimg.com/736x/bd/63/1e/bd631e7f67f681a765f2ed961f0e7786.jpg)
 
 
 # Socials
