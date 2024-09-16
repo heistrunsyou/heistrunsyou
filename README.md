@@ -4,10 +4,13 @@
 death comes before life
 
 # Socials
-[@kyotovein](https://discordapp.com/users/957499162033811487) - discord\n
-[@verstitle](https://www.roblox.com/users/4666088653/profile) - roblox\n
-[@kyotovein](https://www.instagram.com/kyotovein/) - instagram\n
-[@hhikimori](https://www.youtube.com/@hhikimori) - youtube\n
+[@kyotovein](https://discordapp.com/users/957499162033811487) - discord
+
+[@verstitle](https://www.roblox.com/users/4666088653/profile) - roblox
+
+[@kyotovein](https://www.instagram.com/kyotovein/) - instagram
+
+[@hhikimori](https://www.youtube.com/@hhikimori) - youtube
 
 
 # About me
