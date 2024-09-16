@@ -3,7 +3,7 @@
 # Socials
 @kyotovein - discord
 
-@verstitle - roblox
+[@verstitle](https://bestgore.com) - roblox
 
 @kyotovein - instagram
 
