@@ -1,4 +1,6 @@
 # @heist
+![Group 1 (3)](https://tr.rbxcdn.com/4727b880b47fa58d4c302b50cc2c9c2e/768/432/Image/Png)
+
 
 # Socials
 [@kyotovein](https://discordapp.com/users/957499162033811487) - discord
