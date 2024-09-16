@@ -29,7 +29,8 @@ So far, I have learned (and am continuing to learn):
 
 Music represents who I am
 
+Music keeps me alive
+
 Click here to see my music taste:
 https://www.last.fm/user/stackofracks
 
-death comes before life
