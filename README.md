@@ -1,13 +1,13 @@
 # @heist
 
 # Socials
-@kyotovein - discord
+[@kyotovein](https://discordapp.com/users/957499162033811487) - discord
 
-[@verstitle](https://bestgore.com) - roblox
+[@verstitle](https://www.roblox.com/users/4666088653/profile) - roblox
 
-@kyotovein - instagram
+[@kyotovein](https://www.instagram.com/kyotovein/) - instagram
 
-@hhikimori - youtube
+[@hhikimori](https://www.youtube.com/@hhikimori) - youtube
 
 
 # About me
