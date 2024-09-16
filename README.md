@@ -30,3 +30,5 @@ Music represents who I am
 
 Click here to see my music taste:
 https://www.last.fm/user/stackofracks
+
+death comes before life
