@@ -1,7 +1,7 @@
 # @heist
 
 # Socials
-@kyotovein - discord
+@kyotovein[https://www.google.com/search?q=make+clickable+link+github+txt&oq=make+clickable+link+github+txt&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIHCAEQIRigAdIBCDM2OTVqMGo0qAIAsAIB&sourceid=chrome&ie=UTF-8] - discord
 
 @verstitle - roblox
 
