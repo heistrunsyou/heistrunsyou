@@ -1,5 +1,5 @@
 # @heist
-![Group 1 (3)](https://files.catbox.moe/t85433.png)
+![death comes before life](https://files.catbox.moe/t85433.png)
 
 
 # Socials
