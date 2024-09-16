@@ -4,7 +4,7 @@
 death comes before life
 
 # Socials
-[@kyotovein](https://discordapp.com/users/957499162033811487) - discord
+[@tokyoswim](https://discordapp.com/users/957499162033811487) - discord
 
 [@verstitle](https://www.roblox.com/users/4666088653/profile) - roblox
 
