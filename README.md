@@ -1,5 +1,4 @@
-# @heist
-![haha bad wifi](https://i.pinimg.com/736x/1c/01/00/1c010081cc6c5a1933fc042991f360d7.jpg)
+![haha bad wifi](https://i.pinimg.com/736x/95/e1/b5/95e1b5d72d0404485624954fa8b4fd3f.jpg)
 
 
 # Socials
