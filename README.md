@@ -12,11 +12,7 @@
 
 
 # About me
-I'm heist
-
-I specialize in video editing, graphic design, songwriting, and coding.
-
-So far, I have learned (and am continuing to learn):
+code in:
 
 
 
