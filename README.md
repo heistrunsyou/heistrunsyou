@@ -1,5 +1,5 @@
 # @heist
-![death comes before life]([https://i.pinimg.com/736x/bd/63/1e/bd631e7f67f681a765f2ed961f0e7786.jpg](https://i.pinimg.com/736x/1c/01/00/1c010081cc6c5a1933fc042991f360d7.jpg))
+![haha bad wifi]([https://i.pinimg.com/736x/bd/63/1e/bd631e7f67f681a765f2ed961f0e7786.jpg](https://i.pinimg.com/736x/1c/01/00/1c010081cc6c5a1933fc042991f360d7.jpg))
 
 
 # Socials
