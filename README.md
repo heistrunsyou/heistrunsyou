@@ -12,7 +12,7 @@
 
 
 # About me
-code in:
+coding in:
 
 
 
