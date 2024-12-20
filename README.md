@@ -2,11 +2,11 @@
 
 
 # Socials
-[@tokyoswim](https://discordapp.com/users/957499162033811487) - discord
+[@miamihomicide](https://discordapp.com/users/957499162033811487) - discord
 
-[@verstitle](https://www.roblox.com/users/4666088653/profile) - roblox
+[@haikoyasu](https://www.roblox.com/users/4666088653/profile) - roblox
 
-[@kyotovein](https://www.instagram.com/kyotovein/) - instagram
+[@jinsaibootleg](https://www.instagram.com/jinsaibootleg/) - instagram
 
 [@hhikimori](https://www.youtube.com/@hhikimori) - youtube
 
