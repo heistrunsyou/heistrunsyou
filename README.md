@@ -4,11 +4,11 @@
 # Socials
 [@miamihomicide](https://discordapp.com/users/957499162033811487) - discord
 
-[@haikoyasu](https://www.roblox.com/users/4666088653/profile) - roblox
+[@cyberiahills](https://www.roblox.com/users/4666088653/profile) - roblox
 
 [@jinsaibootleg](https://www.instagram.com/jinsaibootleg/) - instagram
 
-[@hhikimori](https://www.youtube.com/@hhikimori) - youtube
+[@痢](https://www.youtube.com/@痢) - youtube
 
 
 # About me
