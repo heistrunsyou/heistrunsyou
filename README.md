@@ -2,13 +2,13 @@
 
 
 # Socials
-[@miamihomicide](https://discordapp.com/users/957499162033811487) - discord
+[@rockrevived](https://discordapp.com/users/957499162033811487) - discord
 
 [@cyberiahills](https://www.roblox.com/users/4666088653/profile) - roblox
 
 [@jinsaibootleg](https://www.instagram.com/jinsaibootleg/) - instagram
 
-[@痢](https://www.youtube.com/@痢) - youtube
+[@japanesebalenci](https://www.youtube.com/@japanesebalenci) - youtube
 
 
 # About me
