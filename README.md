@@ -19,3 +19,4 @@ coding in:
 
 ![Group 1 (3)](https://github.com/heistrunsyou/heistrunsyou/assets/154766120/54f1dab0-9d11-43b9-9c02-9a2a38a5abc2)
 
+[![My Last.fm](https://lastfm-recently-played.vercel.app/api?user=shehatesheist)](https://www.last.fm/user/shehatesheist)
