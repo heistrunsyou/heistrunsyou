@@ -2,13 +2,13 @@
 
 
 # Socials
-[@rockrevived](https://discordapp.com/users/957499162033811487) - discord
+[@beijingpoet](https://discordapp.com/users/957499162033811487) - discord
 
-[@cyberiahills](https://www.roblox.com/users/4666088653/profile) - roblox
+[@drownindiamonds](https://www.roblox.com/users/4666088653/profile) - roblox
 
-[@jinsaibootleg](https://www.instagram.com/jinsaibootleg/) - instagram
+[@shanghaipoet](https://www.instagram.com/shanghaipoet/) - instagram
 
-[@japanesebalenci](https://www.youtube.com/@japanesebalenci) - youtube
+[@japanesebalenci](https://www.youtube.com/@beijingpoet) - youtube
 
 
 # About me
