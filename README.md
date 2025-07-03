@@ -1,6 +1,3 @@
-![haha bad wifi](https://i.pinimg.com/736x/95/e1/b5/95e1b5d72d0404485624954fa8b4fd3f.jpg)
-
-
 # Socials
 [@beijingpoet](https://discordapp.com/users/957499162033811487) - discord
 
